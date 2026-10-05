@@ -33,4 +33,4 @@ I'm interested in Data Analyst things, seeking for internships opportunities so 
 
 ### 📫 Connect With Me
 
-- LinkedIn: [My LinkedIn]([https://www.linkedin.com/in/alisha-rahman-b825a032b/?isSelfProfile=true])
+- LinkedIn: [My LinkedIn](https://www.linkedin.com/in/alisha-rahman-b825a032b/?isSelfProfile=true)
